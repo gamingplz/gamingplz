@@ -1,0 +1,2 @@
+# gamingplz
+gamingplz official discord
